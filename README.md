@@ -4,6 +4,4 @@
 - 💞️ I agree to contribute positively and also work as a team for the growth and success of the company and professionally.
 - 📫 Open to offers!
 
-<!---
-Thank you so much!
---->
+<--- Thank you so much! --->
